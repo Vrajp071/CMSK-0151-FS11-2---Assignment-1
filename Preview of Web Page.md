@@ -1,2 +1,2 @@
-Please visit - <a href="vrajaptel.online"> vrajpatel.online </a>
+Please visit - <a href="vrajaptel.online"> vrajpatel </a>
 for preview <3
