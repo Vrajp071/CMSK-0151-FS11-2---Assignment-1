@@ -1,2 +1,2 @@
-Please visit - vrajaptel.online
+Please visit - vrajpatel.online
 for preview <3
